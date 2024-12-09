@@ -1,4 +1,4 @@
-### Oioi, eu me chamo Joice Soares👋
+### Oii, eu me chamo Joice Soares👋
 
 <div align="center">
   <a href="https://github.com/joicexz">
